@@ -29,7 +29,15 @@ as possible. i also have never copied
 someone else, so i hope nobody jumps me
 AGAIN for making such an assumption.
 
-│ proshippers, homophobes , jokes about 
+│ if you see my ponies on Pinterest, 
+please let me know, and do not even 
+try to copy or take inspo from it! i 
+never gift ponies to anyone aside from 
+a friend (if it's not @phainonirl 
+then it's obviously stolen)
+
+│ proshippers, homophobes , jokes 
+about ::
   pedophillia and sensitive topics, 
   etc + i ABSOLUTELY hate 
   neuvifuri/arlefuri, zhongxiao, 
@@ -40,7 +48,6 @@ AGAIN for making such an assumption.
   talk to me about these (or even try 
   to convince me) and we're 
   cool.
-  
 
 │ cuddle and int FREELY if you dont 
   belong in my dni list
