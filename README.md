@@ -11,7 +11,9 @@ i'll remake this entire thing soon..
 	   entp
 
 	   minors iwc, please state if
-	   u are one.
+	   u are one so i can tone down my 
+	   nsfw jokes
+	  
 	   𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
 	   Saturn,       
 	   Ven
@@ -22,6 +24,7 @@ i'll remake this entire thing soon..
 
 【﻿ＤＮＩ ! and miscellaneous】   
 ![image](https://64.media.tumblr.com/86690adb910cf3f425630efc7dee8958/415dba9ce135bfdc-c7/s100x200/8d61ccff2c8f847c1cbb92ed1d7806c984072b83.png) 
+│first and foremost, do not cover me or my friends when we are afk or cuddling. 
 
 │ @DO NOT TAKE INSPO ──★ it took me
 a lot of trial and error to come up
