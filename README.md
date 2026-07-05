@@ -45,8 +45,8 @@ about ::
   pedophillia and sensitive topics, 
   etc + i ABSOLUTELY hate 
   neuvifuri/arlefuri, zhongxiao, 
-  k*eluc, rerflins/or any rerir ships, 
-  varhen.
+  k*eluc, rerflins/or any rerir ships 
+  aside from the canon, and varhen.
   if you ship these and you're a 
   friend of mine, idgaf, just don't 
   talk to me about these (or even try 
