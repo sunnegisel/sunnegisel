@@ -75,8 +75,9 @@ about ::
   nice to everybody and anybody.
   
 │  i dont really follow people back 
-   here in github unless im asked to 
-   so pls lmk!
+   here in github unless im a bit 
+   close with you or if im asked to 
+   so pls lmk! 
 
 ╰  interests : genshin, hsr, anime, 
    cosplaying (online and irl!) 
