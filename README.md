@@ -1,4 +1,5 @@
-<img src="https://glitch.me" alt="Profile Views">
+![](https://komarev.com/ghpvc/?sunnegisel=SUNNEGISEL)
+
 
 
 i'll remake this entire thing soon..
