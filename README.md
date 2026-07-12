@@ -14,7 +14,7 @@ i'll remake this entire thing soon..
 	꒪ㅤ  17+,  multishipper .   
 	   entp
 
-	   16- iwc, please state if
+	   16- iwc, please state
 	   ur age so i can tone down my 
 	   nsfw jokes
 	  
